@@ -15,3 +15,8 @@ Um aspecto empolgante da T.I. é a constante evolução das tecnologias. Estou s
 Acredito que cada linha de código escrita é uma parte importante da jornada de aprendizado. Estou ansiosa para continuar crescendo, aprendendo com os melhores e contribuindo para um futuro digital mais robusto e interconectado.
 
 Vamos construir o futuro juntos, uma linha de código de cada vez! 🚀✨
+
+
+Entre contato comigo por Instagram @Gabrielsccs
+Whatsapp +55 16 99346 3524
+Email gabrielsantoscarvalho2012@hotmail.com
