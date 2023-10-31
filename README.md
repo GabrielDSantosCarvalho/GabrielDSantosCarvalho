@@ -10,6 +10,7 @@ Um aspecto empolgante da T.I. é a constante evolução das tecnologias. Estou s
 
 Vamos construir o futuro juntos, uma linha de código de cada vez! 🚀✨
 
+Linguagens até o momento: CSS HTML C# PHP MYSQL JAVASCRIPT
 
 Entre contato comigo por Instagram @Gabrielsccs
 Whatsapp +55 16 99346 3524
